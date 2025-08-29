@@ -7,4 +7,4 @@
 🔧 Tech: Python · .NET · Ruby on Rails · React · AWS · SQL Server
 
 🌐 Connect with me:  
-[LinkedIn](https://linkedin.com/in/clivedondi) | [Email](mailto:clivedondi@hotmail.com)
+[LinkedIn](https://linkedin.com/in/clivedondi) | [Email](mailto:clivedondi@hotmail.com) | 📸 [Instagram](https://www.instagram.com/clive.dondi)
