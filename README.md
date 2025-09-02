@@ -10,4 +10,4 @@
 🌐 **Portfolio:** [cdondi.github.io](https://cdondi.github.io/)
 
 🌐 Connect with me:  
-[LinkedIn](https://linkedin.com/in/clivedondi) | [Email](mailto:clivedondi@hotmail.com) | 📸 [Instagram](https://www.instagram.com/clive.dondi)
+[LinkedIn](https://linkedin.com/in/clivedondi) | [Email](mailto:clivedondi@hotmail.com) | 📸 [Instagram](https://www.instagram.com/clive.dondi) | | [X (Twitter)](https://x.com/dondiclive)
